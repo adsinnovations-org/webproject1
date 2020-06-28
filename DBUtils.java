@@ -1,3 +1,3 @@
-Updated and added
+Updated
 Hi
 This is Srinivas
